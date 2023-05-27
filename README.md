@@ -25,6 +25,6 @@ Steps to run this project
 
 6 - Have a wonderful exprience. Contact directly at daviderivon@gmail.com/davesecnd@gmail.com if any problems.
 
-
+To copy some files from here soon
 
 7 - Gracias Amigos, 😎.
